@@ -1,2 +1,2 @@
-# Pralay-Shamakl
+# Pralay-Shamak
 pralay shamak
